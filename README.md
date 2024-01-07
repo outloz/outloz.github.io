@@ -1,2 +1,2 @@
 # OUT STORE 
-Cooming soon!
+Coming soon!
